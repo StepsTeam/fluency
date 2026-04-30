@@ -1,4 +1,4 @@
-# Project Page: Fluency Security (Text-Friendly Markdown)
+# Project Page: Fluency Security
 
 ## Financial Plan & Market Timing
 
