@@ -1,24 +1,4 @@
-None selected
-
-Skip to content
-Using Gmail with screen readers
-
-1 of 21,960
-Remaining Fluency Pemplates
-Inbox
-
-Katrina Thomas
-Attachments
-9:41 AM (47 minutes ago)
-to me
-
-Minus Propose because that page was not in the zip file she sent. 
- 7 Attachments
-  •  Scanned by Gmail
-
-
-
-# Fluency Security — Promote Page
+# Promote Page
 
 ## 1. Go-To-Market (GTM) Strategy
 
