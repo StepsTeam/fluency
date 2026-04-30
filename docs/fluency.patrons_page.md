@@ -1,23 +1,3 @@
-None selected
-
-Skip to content
-Using Gmail with screen readers
-
-1 of 21,960
-Remaining Fluency Pemplates
-Inbox
-
-Katrina Thomas
-Attachments
-9:41 AM (42 minutes ago)
-to me
-
-Minus Propose because that page was not in the zip file she sent. 
- 7 Attachments
-  •  Scanned by Gmail
-
-
-
 # Patrons Page: Fluency Security
 
 ## Current Customers, Waitlist & Validation
